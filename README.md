@@ -11,6 +11,7 @@
 - [YT Music](https://music.youtube.com/)
 - [Federal healthcare subsidy at HealthCare.gov](https://www.healthcare.gov)
 - [CA subsidies at Benefitscal.com](https://benefitscal.com)
+- [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md)
 
 ## CRM2 history...
 - [Gemini Tha Artist's Mission Statement: I Give You the Best, his album from 2013](https://www.youtube.com/watch?v=G4lCbCSBXcI&list=OLAK5uy_n8aJV-tNSQh2R5gTSfGa9VZjM581piOMs)

@@ -5,3 +5,10 @@
 - 📫 How to reach me: ?
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I sell digital artworks on etsy.com/shop/935ent
+
+# Civil Rights Movement 2
+## News:
+- [Sat/5/17/2025 | Day #2 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250517-day002-civil-rights-movement2.docx)
+- [Sat/5/17/2025 | Day #3 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250518-day003-civil-rights-movement2.txt)
+- [Sat/5/17/2025 | Day #4 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250519-day004-civil-rights-movement2.docx)
+

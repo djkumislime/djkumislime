@@ -9,6 +9,8 @@
 ## CRM2 links:
 - [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)
 - [YT Music](https://music.youtube.com/)
+- [Federal healthcare subsidy at HealthCare.gov](https://www.healthcare.gov)
+- [CA subsidies at Benefitscal.com](https://benefitscal.com)
 
 ## CRM2 history...
 - [Sat, May 17, 2025: Civil Rights Movement 2 begins.](https://github.com/djkumislime/2025/blob/main/VID_20250521_074723882.mp4)

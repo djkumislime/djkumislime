@@ -9,6 +9,10 @@
 ## CRM2 history...
 Civil Rights Movement was happening during the 1960's ➡️: [Civil Rights Movement at @YouTube/BlackHistoryinTwoMinutes](https://youtu.be/9ppTiyxFSs0?si=9JVIwt_BKtFEZoEJ)
 
+## CRM2 Vocabulary:
+- DEI = Diversity, Equity, and Inclusion
+- 
+
 ## Daily CRM2 News:
 - [Sat/5/17/2025 | Day #2 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250517-day002-civil-rights-movement2.docx)
 - [Sun/5/18/2025 | Day #3 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250518-day003-civil-rights-movements2.txt)

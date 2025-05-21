@@ -10,6 +10,7 @@
 - [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)
 
 ## CRM2 history...
+- [Sat, May 17, 2025: Civil Rights Movement 2 begins.](https://github.com/djkumislime/2025/blob/main/VID_20250521_074723882.mp4)
 - [Sam Cooke's A Change Is Gonna Come, his album from 1964](https://www.youtube.com/watch?v=wEBlaMOmKV4&list=OLAK5uy_ng3hYyMmandP9LyLp9mRwajp33i90T7Bg)
 - Civil Rights Movement was happening during the 1960's ➡️: [Civil Rights Movement at @YouTube/BlackHistoryinTwoMinutes](https://youtu.be/9ppTiyxFSs0?si=9JVIwt_BKtFEZoEJ)
 

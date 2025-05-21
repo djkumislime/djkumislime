@@ -1,6 +1,6 @@
 # Civil Rights Movement 2
 - 👋 Hi, I’m DJ Kumislime
-- 👀 I’m interested in life
+- 👀 I’m interested in life: [Astro Transit Chart](https://astro-charts.com/chart-of-moment/)
 - 🌱 I’m currently learning business
 - 💞️ I’m looking to collaborate on Civil Rights Movement 2
 - 📫 How to reach me: Text me, if you have my number

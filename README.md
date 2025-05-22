@@ -6,8 +6,8 @@
 
 <ins>**1957-1971: Veterans**</ins><br/>
 Yo-cchan (Jan 57), Madonna (58), Prince (58), Kind of Blue (59), [Chuck D (60)](https://bringthenoiseapp.com/)<br/>
-Dr.Dre (65), Yoshiki (65), Chris Rock (65), [Zahn McClarnon (66)](https://en.wikipedia.org/wiki/Zahn_McClarnon), Janet (66), Navarro (67)<br/>
-Jay-Z (69), Snoopy (Oct 71)
+[Dr.Dre (65)](https://www.drdre.com/), [Yoshiki (65)](https://www.yoshiki.net/), [Chris Rock (65)](https://chrisrock.com/), [Zahn McClarnon (66)](https://en.wikipedia.org/wiki/Zahn_McClarnon), Janet (66), Navarro (67)<br/>
+[Jay-Z (69)](https://www.rocnation.com/), Snoopy (Oct 71)
 
 <ins>**1972: Veterans & Special Team**</ins><br/>
 [ピート (72)](https://www.youtube.com/@fauxfoemusic), The Godfather (72)
@@ -27,11 +27,11 @@ Jump (83), Scarface (83), [くみ (85)](https://soundcloud.com/user-107284496), 
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | 2050's (Blockchain)
 | -------------    | ------------- | -------------     | -------------       | -------------
 | Herbert Hoover | Dwight Eisenhower | George H. W. Bush | [Donald Trump](https://github.com/djkumislime/2025/blob/main/README.md) | ? P.Diddy
-| Rights to Exist | Rights to Vote  | Rights to Privacy | Rights to Decent Healthcare | Rights to Transform
-| Duke Ellington   | Jimi Page     | [Dr.Dre](https://youtu.be/eeumL7Fz-8M?feature=shared&t=41) | T.L.                | Elon Musk
-| Charlie Parker   | Sam Cooke     | [Snoopy](https://youtu.be/YJTqBL7MSX0?feature=shared) | Tyler, The Creator  | Bill Gates
-| Dizzy Gillespie  | David Bowie   | Jay-Z             | Gemini Tha Artist   | Dorsey
-| Charlie Chaplin  | Jimi Hendrix  | Dave Navarro      | Amir Kalil          | Jeff Bezos
+| Rights to Exist | Rights to Vote | Rights to Privacy | Rights to Decent Healthcare | Rights to Transform
+| Duke Ellington | Jimi Page | [Dr.Dre](https://youtu.be/eeumL7Fz-8M?feature=shared&t=41) | T.L. | Elon Musk
+| Charlie Parker | Sam Cooke | [Snoopy](https://youtu.be/YJTqBL7MSX0?feature=shared) | Tyler, The Creator | Bill Gates
+| Dizzy Gillespie | David Bowie | Jay-Z             | Gemini Tha Artist   | Dorsey
+| Charlie Chaplin | Jimi Hendrix | [Dave Navarro](https://davenavarro.com/) | Amir Kalil          | Jeff Bezos
 
 # Links
 [🍓 DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared)

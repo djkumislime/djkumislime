@@ -1,30 +1,29 @@
 # CRM2 = Civil Rights Movement 2 by DJ📡Kumislime
 
-### Top Links
-| 📡 | [DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared)
-| ------------- | -------------
-| 🟥 | [HealthCare.gov](https://www.healthcare.gov), [Benefitscal.com](https://benefitscal.com)
+[^_^ July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/)
 
-**1957-1971: Veterans**<br/>
+💝 [YT Music](https://music.youtube.com/) | 💝 [Emojipedia.org](https://emojipedia.org/) | 💝 [Markdown](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax) | ⚡ [くみ's artworks for sale at Etsy](https://etsy.com/shop/935ent)
+
+<ins>**1957-1971: Veterans**</ins><br/>
 Yo-cchan (Jan 57), Madonna (58), Prince (58), Kind of Blue (59), [Chuck D (60)](https://bringthenoiseapp.com/)<br/>
 Dr.Dre (65), Yoshiki (65), Chris Rock (65), [Zahn McClarnon (66)](https://en.wikipedia.org/wiki/Zahn_McClarnon), Janet (66), Navarro (67)<br/>
 Jay-Z (69), Snoopy (Oct 71)
 
-**1972: Veterans & Special Team**<br/>
+<ins>**1972: Veterans & Special Team**</ins><br/>
 [ピート (72)](https://www.youtube.com/@fauxfoemusic), The Godfather (72)
 
-**1973,1974: Special Team**<br/>
+<ins>**1973,1974: Special Team**</ins><br/>
 GACKT (73), The Godfather PART2 (74)
 
-**1975-1982: Special Team & Soldiers**<br/>
+<ins>**1975-1982: Special Team & Soldiers**</ins><br/>
 Taxi Driver (76), Raging Bull (80), [Mehcad Brooks (80)](https://mehcad.com/), [Mario (?78?81)](https://www.mariotheeditor.com/), マカリ (?78?81)<br/>
 幸西 (?78?81), モリス (?78?81), [Nicky (?78?81)](https://soundcloud.com/pluutomusic/sets/pluuto-ep), [Dr. Satterthwaite (?78?81)](https://gregonkeys.com/)<br/>
 やっちゃん (Jan 83), [Hikaru Utada (Jan 83)](https://www.utadahikaru.jp/)
 
-**1983,1984,1985: Soldiers**<br/>
+<ins>**1983,1984,1985: Soldiers**</ins><br/>
 Jump (83), Scarface (83), [くみ (85)](https://soundcloud.com/user-107284496), [Bruno Mars (85)](https://www.brunomars.com/)
 
-## 📈1930's Onward Every 30 Years
+# 📈1930's Onward Every 30 Years
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | 2050's (Blockchain)
 | -------------    | ------------- | -------------     | -------------       | -------------
 | Herbert Hoover | Dwight Eisenhower | George H. W. Bush | [Donald Trump](https://github.com/djkumislime/2025/blob/main/README.md) | ? P.Diddy
@@ -34,5 +33,8 @@ Jump (83), Scarface (83), [くみ (85)](https://soundcloud.com/user-107284496), 
 | Dizzy Gillespie  | David Bowie   | Jay-Z             | Gemini Tha Artist   | Dorsey
 | Charlie Chaplin  | Jimi Hendrix  | Dave Navarro      | Amir Kalil          | Jeff Bezos
 
-#### Tools
-👌 [July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/)(https://github.com/djkumislime/djkumislime/tree/main) | ⚡ [くみ's artworks for sale at Etsy](https://etsy.com/shop/935ent) | 💝 [YT Music](https://music.youtube.com/) | 💝 [Emojipedia.org](https://emojipedia.org/) | 💝 [Markdown](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
+# Links
+[🍓 DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared)
+[🟥 HealthCare.gov](https://www.healthcare.gov)
+[🟥 Benefitscal.com](https://benefitscal.com)
+

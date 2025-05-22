@@ -32,7 +32,7 @@
 ### Top Links
 | ✨ | 🎀
 | ------------- | -------------
-| 📡 | [DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared)
+| 📡 | [DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared), [Pluuto EP](https://soundcloud.com/pluutomusic/sets/pluuto-ep), [User 107284496](https://soundcloud.com/user-107284496)
 | 🎬 | [Snoop Dogg - Iz It A Crime? (OFFICIAL MOVIE)](https://youtu.be/YJTqBL7MSX0?feature=shared)
 | 🗽 | [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)
 

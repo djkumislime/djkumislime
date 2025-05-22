@@ -15,20 +15,24 @@
 | DJ72-82 | Special Team | [🔍Link](https://www.imdb.com/title/tt0068646/)
 | 1980±5 | Soldiers | [🎵Link](https://youtu.be/TaD3SgPuccE?feature=shared)
 
-[ 1957-1971: Veterans ]
-Madonna (58), Prince (58), Dr.Dre (65), Yoshiki (65), Chris Rock (65), Janet (66), Navarro (67), Jay-Z (69), Snoopy (71)
+**1957-1971: Veterans**<br/>
+Yo-cchan (Jan 57), Madonna (58), Prince (58), Kind of Blue (59), Chuck D (60)<br/>
+Dr.Dre (65), Yoshiki (65), Chris Rock (65), Janet (66), Navarro (67), Jay-Z (69)<br/>
+Snoopy (Oct 71)
 
-[ 1972: Veterans, Special Team ]
+**1972: Veterans & Special Team**<br/>
 ピート (72), The Godfather (72)
 
-[ 1973,1974: Special Team ]
+**1973,1974: Special Team**<br/>
 GACKT (73), The Godfather PART2 (74)
 
-[ 1975-1982: Special Team, Soldiers]
-Nicky, やっちゃん (Jan 83), Dr. Satterthwaite, Mario, 幸西, マカリ, モリス, Taxi Driver (76), Raging Bull (80)
+**1975-1982: Special Team & Soldiers**<br/>
+Taxi Driver (76), Raging Bull (80), Mehcad Brooks (80), Mario (?78?81), マカリ (?78?81)<br/>
+幸西 (?78?81), モリス (?78?81), Nicky (?78?81), Dr. Satterthwaite (?78?81)<br/>
+やっちゃん (Jan 83), Hikaru Utada (Jan 83)
 
-[ 1983,1984,1985: Soldiers ]
-Scarface (83), Bruno Mars (85), くみ (85) 
+**1983,1984,1985: Soldiers**<br/>
+Jump (83), Scarface (83), くみ (85), Bruno Mars (85)
 
 ## 📈1930's : 1960's : 1990's : 2020's
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | YT Music

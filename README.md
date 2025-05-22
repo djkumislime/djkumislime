@@ -11,12 +11,15 @@
 [Civil Rights Movement at @YouTube/BlackHistoryinTwoMinutes](https://youtu.be/9ppTiyxFSs0?si=9JVIwt_BKtFEZoEJ)
 
 ## CRM2 Tools:
-🌠 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md)
+🌠 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md)<br/>
+
 💝 [Github readme markdown doc](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
 💝 [https://emojipedia.org/](https://emojipedia.org/)
 💝 [YT Music](https://music.youtube.com/)<br/>
+
 🎵 [Gemini Tha Artist's Mission Statement: I Give You the Best, his album from 2013](https://www.youtube.com/watch?v=G4lCbCSBXcI&list=OLAK5uy_n8aJV-tNSQh2R5gTSfGa9VZjM581piOMs)
 🎵 [Sam Cooke's A Change Is Gonna Come, his album from 1964](https://www.youtube.com/watch?v=wEBlaMOmKV4&list=OLAK5uy_ng3hYyMmandP9LyLp9mRwajp33i90T7Bg)<br/>
+
 🟥 [Federal healthcare subsidy at HealthCare.gov](https://www.healthcare.gov)
 🟥 [CA subsidies at Benefitscal.com](https://benefitscal.com)<br/>
 

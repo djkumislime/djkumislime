@@ -10,6 +10,9 @@
 | Janet | CFO = Chief Finance Officer | [🔍Link](https://www.revolt.tv/article/janet-jackson-career-influence-and-legacy-in-pop-and-r-and-b)
 | Bruno Mars | CTO = Chief Tech Officer | [🎵Link](https://youtu.be/OPf0YbXqDm0?feature=shared)
 | Lady Gaga | CEO = Chief Executive Officer | [🎵Link](https://youtu.be/fmC6b6_ovZY?feature=shared)
+| DJ57272 | Veterans | [🔍Link](https://en.wikipedia.org/wiki/Veteran)
+| DJ72-82 | Special Team | [🔍Link](https://www.imdb.com/title/tt0068646/)
+| 1980±5 | Soldiers | [🎵Link](https://youtu.be/TaD3SgPuccE?feature=shared)
 
 ## 1930's : 1960's : 1990's : 2020's
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | YT Music

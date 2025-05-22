@@ -25,7 +25,7 @@ Jump (83), Scarface (83), [くみ (85)](https://soundcloud.com/user-107284496), 
 # 📈1930's Onward Every 30 Years
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | 2050's (Blockchain)
 | -------------    | ------------- | -------------     | -------------       | -------------
-| [Herbert Hoover, Inaugural Class of Stanford Univ.](https://en.wikipedia.org/wiki/Herbert_Hoover#Early_life_and_education) | [Dwight Eisenhower, West Point = Military](https://en.wikipedia.org/wiki/Dwight_D._Eisenhower#Early_life_and_education) | George H. W. Bush | [Donald Trump](https://github.com/djkumislime/2025/blob/main/README.md) | ? [P.Diddy](https://www.cnn.com/entertainment/live-news/diddy-trial-cassie-court-case-05-20-25)
+| [Herbert Hoover, Inaugural Class of Stanford Univ.](https://en.wikipedia.org/wiki/Herbert_Hoover#Early_life_and_education) | [Dwight Eisenhower, West Point = Military](https://en.wikipedia.org/wiki/Dwight_D._Eisenhower#Early_life_and_education) | [George H. W. Bush, Navy](https://en.wikipedia.org/wiki/George_H._W._Bush#Early_life_and_education_(1924%E2%80%931948)) | [Donald Trump, Military](https://github.com/djkumislime/2025/blob/main/README.md) | ? [P.Diddy](https://www.cnn.com/entertainment/live-news/diddy-trial-cassie-court-case-05-20-25)
 | Rights to Exist | Rights to Vote | Rights to Privacy | Rights to Decent Healthcare | Rights to Transform
 | Duke Ellington | Jimi Page | [Dr.Dre](https://youtu.be/eeumL7Fz-8M?feature=shared&t=41) | T.L. | Elon Musk
 | Charlie Parker | Sam Cooke | [Snoopy](https://youtu.be/YJTqBL7MSX0?feature=shared) | Tyler, The Creator | Bill Gates

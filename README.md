@@ -14,6 +14,12 @@
 | DJ72-82 | Special Team | [🔍Link](https://www.imdb.com/title/tt0068646/)
 | 1980±5 | Soldiers | [🎵Link](https://youtu.be/TaD3SgPuccE?feature=shared)
 
+- Born in [14yrs] 1957 - 1971 > Veterans
+- Born in [1yr] 1972 > Veterans, Special Team
+- Born in [2yrs] 1973, 1974 > Special Team
+- Born in [8yrs] 1975 - 1982 > Special Team, Soldiers
+- Born in [3yrs] 1983, 1984, 1985 > Soldiers
+
 ## 1930's : 1960's : 1990's : 2020's
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | YT Music
 | -------------    | ------------- | -------------     | -------------       | -------------

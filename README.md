@@ -4,16 +4,20 @@
 - 📫 How to reach me: Text me, if you have my number
 - ⚡ Fun fact: I sell digital artworks at [etsy.com/shop/935ent](https://etsy.com/shop/935ent)
 
-## CRM2 links:
-🎵 CRM:CRM2 = Sam Cooke : Snoop Dogg<br/>
+## CRM2 Top Links:
 🎬 [Snoop Dogg - Iz It A Crime? (OFFICIAL MOVIE)](https://youtu.be/YJTqBL7MSX0?feature=shared)<br/>
 🗽 [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)<br/>
-🎵 [YT Music](https://music.youtube.com/)<br/>
-🟥 [Federal healthcare subsidy at HealthCare.gov](https://www.healthcare.gov)<br/>
+
+## CRM2 Tools:
+🌠 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md)
+💝 [Github readme markdown doc](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
+💝 [https://emojipedia.org/](https://emojipedia.org/)
+💝 [YT Music](https://music.youtube.com/)<br/>
+🟥 [Federal healthcare subsidy at HealthCare.gov](https://www.healthcare.gov)
 🟥 [CA subsidies at Benefitscal.com](https://benefitscal.com)<br/>
-🗽 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md)
 
 ## CRM2 history...
+🎵 CRM:CRM2 = Sam Cooke : Snoop Dogg<br/>
 🎵 [Gemini Tha Artist's Mission Statement: I Give You the Best, his album from 2013](https://www.youtube.com/watch?v=G4lCbCSBXcI&list=OLAK5uy_n8aJV-tNSQh2R5gTSfGa9VZjM581piOMs)<br/>
 🗽 Wed, May 21, 2025: The Rosa Parks (*1) moment of Civil Rights Movement 2 happens ↙️:<br/>
 [DJ Kumislime decides to upload a translated copy of her Japanese birth certificate to Benefitscal.com.](https://benefitscal.com)<br/>

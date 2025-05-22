@@ -9,13 +9,13 @@ Yo-cchan (Jan 57), [Madonna (58)](https://youtu.be/VlbaJA7aO9M?feature=shared), 
 [Jay-Z (69)](https://www.rocnation.com/), Snoopy (Oct 71)
 
 <ins>**1972: Veterans & Special Team**</ins><br/>
-[ピート (72)](https://www.youtube.com/@fauxfoemusic), The Godfather (72)
+[ホリエモン (72)](https://www.google.com/search?q=horiemon&sca_esv=2af23fbe5c927cf8&rlz=1C1ONGR_enUS1159US1159&prmd=ivns&sxsrf=AHTn8zrFMDQ8GXFDsKZskMfjOY75-gygEg:1747953531446&source=lnms&fbs=ABzOT_CWdhQLP1FcmU5B0fn3xuWpA-dk4wpBWOGsoR7DG5zJBjLjqIC1CYKD9D-DQAQS3Z44LBK6yTXN_5587Z3ya9D76ZZ826DWN9d1Qgzn83HTxrHrKWtHY_wmBzzWWfvRn_zuv0G5fCMMqr2dkyXi8QErFO13wLGo3ULN6ipwwniNdnQjAejmjERjQms3181qlCcrn8OWQY2Cc64WiksQbkGwFVX9DA&sa=X&ved=2ahUKEwiso82qkriNAxWbFjQIHaCUAQEQ0pQJegQIBhAE&biw=1138&bih=659&dpr=1.23), [ピート (72)](https://www.youtube.com/@fauxfoemusic), The Godfather (72)
 
 <ins>**1973,1974: Special Team**</ins><br/>
 GACKT (73), The Godfather PART2 (74)
 
 <ins>**1975-1982: Special Team & Soldiers**</ins><br/>
-Taxi Driver (76), Raging Bull (80), [Mehcad Brooks (80)](https://mehcad.com/), [Mario (?78?81)](https://www.mariotheeditor.com/), マカリ (?78?81)<br/>
+Taxi Driver (76), Raging Bull (80), [Mehcad Brooks (80)](https://mehcad.com/), [Akihiro Nishino (80)](https://www.google.com/search?q=akihiro+nishino&sca_esv=2af23fbe5c927cf8&rlz=1C1ONGR_enUS1159US1159&biw=1138&bih=659&sxsrf=AHTn8zpukN4gQ-jK2jBwZhCOiKeb1C2Y8A%3A1747953534318&ei=fqcvaLyZE57P0PEP6aDHQA&ved=0ahUKEwi80PyrkriNAxWeJzQIHWnQEQgQ4dUDCBA&uact=5&oq=akihiro+nishino&gs_lp=Egxnd3Mtd2l6LXNlcnAiD2FraWhpcm8gbmlzaGlubzIKECMYgAQYJxiKBTILEC4YgAQYkQIYigUyBRAAGIAEMgUQABiABDIGEAAYFhgeMgYQABgWGB4yBhAAGBYYHjIGEAAYFhgeMgYQABgWGB4yBhAAGBYYHkj9GlCHDVieGXACeAGQAQCYAYABoAHoC6oBAzcuOLgBA8gBAPgBAZgCEaACtwzCAgoQABiwAxjWBBhHwgIKEC4YgAQYQxiKBcICChAAGIAEGEMYigXCAgsQABiABBiRAhiKBcICCBAuGIAEGLEDwgIFEC4YgATCAgoQLhiABBgUGIcCwgIOEC4YgAQYkQIYsQMYigXCAggQABiABBixA8ICCxAuGIAEGLEDGIMBwgIKEAAYgAQYFBiHAsICCBAuGBYYChgemAMAiAYBkAYIkgcDOC45oAfw4AOyBwM2Ljm4B68M&sclient=gws-wiz-serp), [Mario (?78?81)](https://www.mariotheeditor.com/), マカリ (?78?81)<br/>
 幸西 (?78?81), モリス (?78?81), [Nicky (?78?81)](https://soundcloud.com/pluutomusic/sets/pluuto-ep), [Dr. Satterthwaite (?78?81)](https://gregonkeys.com/)<br/>
 やっちゃん (Jan 83), [Hikaru Utada (Jan 83)](https://www.utadahikaru.jp/)
 

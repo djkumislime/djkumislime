@@ -9,7 +9,7 @@
 
 **1957-1971: Veterans**<br/>
 Yo-cchan (Jan 57), Madonna (58), Prince (58), Kind of Blue (59), Chuck D (60)<br/>
-Dr.Dre (65), Yoshiki (65), Chris Rock (65), Janet (66), Navarro (67), Jay-Z (69)<br/>
+Dr.Dre (65), Yoshiki (65), Chris Rock (65), Zahn McClarnon (66), Janet (66), Navarro (67), Jay-Z (69)<br/>
 Snoopy (Oct 71)
 
 **1972: Veterans & Special Team**<br/>

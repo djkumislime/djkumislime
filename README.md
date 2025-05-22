@@ -1,12 +1,12 @@
 # Civil Rights Movement 2
 - 👋 Hi, I’m DJ Kumislime
-- 👀 I’m interested in life: [Astro Transit Chart](https://astro-charts.com/chart-of-moment/)
-- 🌱 I’m currently learning business
 - 💞️ I’m looking to collaborate on Civil Rights Movement 2
 - 📫 How to reach me: Text me, if you have my number
 - ⚡ Fun fact: I sell digital artworks at [etsy.com/shop/935ent](https://etsy.com/shop/935ent)
 
 ## CRM2 links:
+- CRM:CRM2 = Sam Cooke:Snoop Dogg
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YJTqBL7MSX0?si=QCmrRbViPc_YJNRt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 - [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)
 - [YT Music](https://music.youtube.com/)
 - [Federal healthcare subsidy at HealthCare.gov](https://www.healthcare.gov)

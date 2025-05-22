@@ -28,6 +28,7 @@ Jump (83), Scarface (83), くみ (85), Bruno Mars (85)
 ## 📈1930's : 1960's : 1990's : 2020's
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | 2050's (Blockchain)
 | -------------    | ------------- | -------------     | -------------       | -------------
+| Herbert Hoover | Dwight Eisenhower | George H. W. Bush | Donald Trump | ? P.Diddy
 | Rights to Exist | Rights to Vote  | Rights to Privacy | Rights to Decent Healthcare | Rights to Transform
 | Duke Ellington   | Jimi Page     | Dr.Dre            | T.L.                | Elon Musk
 | Charlie Parker   | Sam Cooke     | Snoopy            | Tyler, The Creator  | Bill Gates

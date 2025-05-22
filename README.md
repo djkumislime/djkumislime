@@ -25,7 +25,7 @@ Taxi Driver (76), Raging Bull (80), Mehcad Brooks (80), Mario (?78?81), マカ�
 **1983,1984,1985: Soldiers**<br/>
 Jump (83), Scarface (83), くみ (85), Bruno Mars (85)
 
-## 📈1930's : 1960's : 1990's : 2020's
+## 📈1930's Onward Every 30 Years
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | 2050's (Blockchain)
 | -------------    | ------------- | -------------     | -------------       | -------------
 | Herbert Hoover | Dwight Eisenhower | George H. W. Bush | Donald Trump | ? P.Diddy

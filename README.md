@@ -4,7 +4,7 @@
 - ⚡ Fun fact: My digital artworks for sale at [etsy.com/shop/935ent](https://etsy.com/shop/935ent)
 
 ## 1960's : 1990's : 2020's
-| 1960's        | 1990's        | 2020's              | YT Music
+| 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)   | YT Music
 | ------------- | ------------- | -------------       | -------------
 | Jimi Page     | Dr.Dre        | T.L.                | [Illusion, his album from 2013](https://music.youtube.com/playlist?list=OLAK5uy_kcHTm0Vs-uU7Z0O5DpDB5flubNaHZcoDA&feature=shared)
 | Sam Cooke     | Snoopy        | Tyler, The Creator  | [YT Music page](https://music.youtube.com/channel/UCo1DYcm1IZ9v3UPkpiAcgtg?feature=shared)

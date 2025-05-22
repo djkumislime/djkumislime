@@ -7,22 +7,6 @@
 | 🗽 | [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)
 | 🟥 | [HealthCare.gov](https://www.healthcare.gov), [Benefitscal.com](https://benefitscal.com)
 
-
-## CA v.s. Fed
-| ☀️California | National | Link
-| -------------    | ------------- | -------------
-| Ethnomusicology | US History | [🔍Link](https://en.wikipedia.org/wiki/Ethnomusicology)
-| How Ya Feel | US Anthem | [🎵Link](https://youtu.be/n1Q6tajTKnw?feature=shared)
-| Neuroplasticity | Declaration of Independence | [✍️Link](https://en.wikipedia.org/wiki/Neuroplasticity)
-| Super Mario Brothers | Secret Service | [🎵Link](https://www.youtube.com/watch?v=R3WRa88HnVc&list=PL27411ED2E8B82D9C)
-| Madonna | Dept. of Labor | [💸Link](https://en.wikipedia.org/wiki/Madonna)
-| Janet | CFO = Chief Finance Officer | [🔍Link](https://www.revolt.tv/article/janet-jackson-career-influence-and-legacy-in-pop-and-r-and-b)
-| Bruno Mars | CTO = Chief Tech Officer | [🎵Link](https://youtu.be/OPf0YbXqDm0?feature=shared)
-| Lady Gaga | CEO = Chief Executive Officer | [🎵Link](https://youtu.be/fmC6b6_ovZY?feature=shared)
-| DJ57272 | Veterans | [🔍Link](https://en.wikipedia.org/wiki/Veteran)
-| DJ72-82 | Special Team | [🔍Link](https://www.imdb.com/title/tt0068646/)
-| 1980±5 | Soldiers | [🎵Link](https://youtu.be/TaD3SgPuccE?feature=shared)
-
 **1957-1971: Veterans**<br/>
 Yo-cchan (Jan 57), Madonna (58), Prince (58), Kind of Blue (59), Chuck D (60)<br/>
 Dr.Dre (65), Yoshiki (65), Chris Rock (65), Janet (66), Navarro (67), Jay-Z (69)<br/>

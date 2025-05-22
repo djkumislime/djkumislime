@@ -3,6 +3,14 @@
 - 📫 How to reach me: Text, if you have my number.
 - ⚡ Fun fact: My digital artworks for sale at [etsy.com/shop/935ent](https://etsy.com/shop/935ent)
 
+## 1990's : 2020's
+| 1990's     | 2020's |
+| ------------- | ------------- |
+| Dr. Dre       | T.L.  |
+| Snoopy        | Tyler, The Creator  |
+| Jay-Z         | Gemini Tha Artist  |
+| Dave Navarro  | Amir Kalil  |
+
 ## CRM2 Top Links:
 🎬 [Snoop Dogg - Iz It A Crime? (OFFICIAL MOVIE)](https://youtu.be/YJTqBL7MSX0?feature=shared)<br/>
 🗽 [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)<br/>

@@ -1,8 +1,7 @@
-# CRM2 = Civil Rights Movement 2 by DJ📡Kumislime
+# CRM2 = Civil Rights Movement 2 📡
 
-[^_^ July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/) | [US Environmental Protection Agency](https://www.epa.gov/)
-
-💝 [YT Music](https://music.youtube.com/) | 💝 [Emojipedia.org](https://emojipedia.org/) | 💝 [Markdown](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax) | ⚡ [くみ's artworks for sale at Etsy](https://etsy.com/shop/935ent)
+> [!IMPORTANT]
+. [^_^ July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/) | [US Environmental Protection Agency](https://www.epa.gov/)
 
 <ins>**1957-1971: Veterans**</ins><br/>
 Yo-cchan (Jan 57), [Madonna (58)](https://youtu.be/VlbaJA7aO9M?feature=shared), [Prince (58)](https://www.youtube.com/watch?v=HJtxSdTL488&list=OLAK5uy_lO0H7usmrKWdoc6f8SIFQhJgLYmw2562E), Kind of Blue (59), [Chuck D (60)](https://bringthenoiseapp.com/)<br/>
@@ -34,6 +33,11 @@ Jump (83), Scarface (83), [くみ (85)](https://soundcloud.com/user-107284496), 
 | Charlie Chaplin | Jimi Hendrix | [Dave Navarro](https://davenavarro.com/) | Amir Kalil          | Jeff Bezos
 
 # Links
-[🍓 DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared)
-[🟥 HealthCare.gov](https://www.healthcare.gov)
-[🟥 Benefitscal.com](https://benefitscal.com)
+💝 [YT Music](https://music.youtube.com/)
+💝 [Emojipedia.org](https://emojipedia.org/)
+💝 [Markdown](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
+⚡ [くみ's artworks for sale at Etsy](https://etsy.com/shop/935ent)
+<br/>
+🍓 [DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared)
+🟥 [HealthCare.gov](https://www.healthcare.gov)
+🟥 [Benefitscal.com](https://benefitscal.com)

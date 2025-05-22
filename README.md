@@ -1,8 +1,7 @@
 # Civil Rights Movement 2
-- 👋 Hi, I’m DJ Kumislime
-- 💞️ I’m looking to collaborate on Civil Rights Movement 2
-- 📫 How to reach me: Text me, if you have my number
-- ⚡ Fun fact: I sell digital artworks at [etsy.com/shop/935ent](https://etsy.com/shop/935ent)
+- 👋 Hi, I’m DJ Kumislime, 💞️ looking to collaborate on Civil Rights Movement 2.
+- 📫 How to reach me: Text, if you have my number.
+- ⚡ Fun fact: My digital artworks for sale at [etsy.com/shop/935ent](https://etsy.com/shop/935ent)
 
 ## CRM2 Top Links:
 🎬 [Snoop Dogg - Iz It A Crime? (OFFICIAL MOVIE)](https://youtu.be/YJTqBL7MSX0?feature=shared)<br/>

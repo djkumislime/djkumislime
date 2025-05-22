@@ -33,9 +33,8 @@
 | ✨ | 🎀
 | ------------- | -------------
 | 📡 | [DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared)
-| 🎵 | [The Deele's Two Occasions](https://youtu.be/6vr9a46ZZ18?feature=shared)
 | 🎬 | [Snoop Dogg - Iz It A Crime? (OFFICIAL MOVIE)](https://youtu.be/YJTqBL7MSX0?feature=shared)
 | 🗽 | [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)
 
 #### Tools
-🌠 [Daily News](https://github.com/djkumislime/djkumislime/tree/main) | 🌠 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md) | 💝 [Markdown](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax) | 💝 [Emojipedia.org](https://emojipedia.org/) | 💝 [YT Music](https://music.youtube.com/) | 🟥 [HealthCare.gov](https://www.healthcare.gov) | 🟥 [Benefitscal.com](https://benefitscal.com) | 🎬 [Civil Rights Movement in the 1960's](https://youtu.be/9ppTiyxFSs0?si=9JVIwt_BKtFEZoEJ) | ⚡ [My digital artworks for sale at Etsy](https://etsy.com/shop/935ent)
+🌠 [Daily News](https://github.com/djkumislime/djkumislime/tree/main) | 🌠 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md) | 💝 [Markdown](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax) | 💝 [Emojipedia.org](https://emojipedia.org/) | 💝 [YT Music](https://music.youtube.com/) | 🟥 [HealthCare.gov](https://www.healthcare.gov) | 🟥 [Benefitscal.com](https://benefitscal.com) | 🎬 [Civil Rights Movement in the 1960's](https://youtu.be/9ppTiyxFSs0?si=9JVIwt_BKtFEZoEJ) | ⚡ [My digital artworks for sale at Etsy](https://etsy.com/shop/935ent) | 👌 [Astro chart](https://astro-charts.com/chart-of-moment/)

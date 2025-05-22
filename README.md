@@ -15,11 +15,20 @@
 | DJ72-82 | Special Team | [🔍Link](https://www.imdb.com/title/tt0068646/)
 | 1980±5 | Soldiers | [🎵Link](https://youtu.be/TaD3SgPuccE?feature=shared)
 
-- Born in [14yrs] 1957 - 1971 > Veterans
-- Born in [1yr] 1972 > Veterans, Special Team
-- Born in [2yrs] 1973, 1974 > Special Team
-- Born in [8yrs] 1975 - 1982 > Special Team, Soldiers
-- Born in [3yrs] 1983, 1984, 1985 > Soldiers
+[ 1957-1971: Veterans ]
+Madonna (58), Prince (58), Dr.Dre (65), Yoshiki (65), Chris Rock (65), Janet (66), Navarro (67), Jay-Z (69), Snoopy (71)
+
+[ 1972: Veterans, Special Team ]
+ピート (72), The Godfather (72)
+
+[ 1973,1974: Special Team ]
+GACKT (73), The Godfather PART2 (74)
+
+[ 1975-1982: Special Team, Soldiers]
+Nicky, やっちゃん (Jan 83), Dr. Satterthwaite, Mario, 幸西, マカリ, モリス, Taxi Driver (76), Raging Bull (80)
+
+[ 1983,1984,1985: Soldiers ]
+Scarface (83), Bruno Mars (85), くみ (85) 
 
 ## 📈1930's : 1960's : 1990's : 2020's
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | YT Music

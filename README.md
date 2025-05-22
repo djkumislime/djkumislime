@@ -6,10 +6,10 @@
 ## 1990's : 2020's
 | 1960's        | 1990's        | 2020's              | YT Music
 | ------------- | ------------- | -------------       | -------------
-| ?             | Dr.Dre        | T.L.                | [Illusion, his album from 2013](https://music.youtube.com/playlist?list=OLAK5uy_kcHTm0Vs-uU7Z0O5DpDB5flubNaHZcoDA&feature=shared)
-| ?             | Snoopy        | Tyler, The Creator  | [YT Music page](https://music.youtube.com/channel/UCo1DYcm1IZ9v3UPkpiAcgtg?feature=shared)
-| ?             | Jay-Z         | Gemini Tha Artist   | [YT Music page](https://music.youtube.com/channel/UCmNRZMc-MAD7BPEmLC6Y93w?feature=shared)
-| ?             | Dave Navarro  | Amir Kalil          | N/A
+| Jimi Page     | Dr.Dre        | T.L.                | [Illusion, his album from 2013](https://music.youtube.com/playlist?list=OLAK5uy_kcHTm0Vs-uU7Z0O5DpDB5flubNaHZcoDA&feature=shared)
+| Sam Cooke     | Snoopy        | Tyler, The Creator  | [YT Music page](https://music.youtube.com/channel/UCo1DYcm1IZ9v3UPkpiAcgtg?feature=shared)
+| David Bowie   | Jay-Z         | Gemini Tha Artist   | [YT Music page](https://music.youtube.com/channel/UCmNRZMc-MAD7BPEmLC6Y93w?feature=shared)
+| Jimi Hendrix  | Dave Navarro  | Amir Kalil          | N/A
 
 ## CRM2 Top Links:
 🎬 [Snoop Dogg - Iz It A Crime? (OFFICIAL MOVIE)](https://youtu.be/YJTqBL7MSX0?feature=shared)<br/>

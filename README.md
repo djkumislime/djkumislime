@@ -12,11 +12,11 @@
 | Jimi Hendrix  | Dave Navarro  | Amir Kalil          | N/A
 
 ### Top Links:
-| v^_^ | $_$
+| ✨ | 🎀
 | ------------- | -------------
 | 🎬 | [Snoop Dogg - Iz It A Crime? (OFFICIAL MOVIE)](https://youtu.be/YJTqBL7MSX0?feature=shared)
 | 🗽 | [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)
-| 🎬 | Civil Rights Movement was happening during the 1960's ↙️:<br/>[Civil Rights Movement at @YouTube/BlackHistoryinTwoMinutes](https://youtu.be/9ppTiyxFSs0?si=9JVIwt_BKtFEZoEJ)
+| 🎬 | ➡️ Civil Rights Movement was happening in the 1960's:<br/>[Video at @YouTube/BlackHistoryinTwoMinutes](https://youtu.be/9ppTiyxFSs0?si=9JVIwt_BKtFEZoEJ)
 
 #### Tools:
 🌠 [Daily News](https://github.com/djkumislime/djkumislime/tree/main) | 🌠 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md) | 💝 [Markdown](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax) | 💝 [Emojipedia.org](https://emojipedia.org/) | 💝 [YT Music](https://music.youtube.com/) | 🟥 [HealthCare.gov](https://www.healthcare.gov) | 🟥 [Benefitscal.com](https://benefitscal.com)

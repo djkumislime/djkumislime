@@ -1,5 +1,16 @@
 # CRM2 = Civil Rights Movement 2 by DJ Kumislime
 
+## California v.s. National
+| California | National | Link
+| -------------    | ------------- | -------------
+| How Ya Feel | US Anthem | [🎵Link](https://youtu.be/n1Q6tajTKnw?feature=shared)
+| Neuroplasticity | Declaration of Independence | [✍️Link](https://en.wikipedia.org/wiki/Neuroplasticity)
+| Super Mario Brothers | Secret Service | [🎵Link](https://www.youtube.com/watch?v=R3WRa88HnVc&list=PL27411ED2E8B82D9C)
+| Madonna | Dept. of Labor | [💸Link](https://en.wikipedia.org/wiki/Madonna)
+| Janet | CFO = Chief Finance Officer | [🔍Link](https://www.revolt.tv/article/janet-jackson-career-influence-and-legacy-in-pop-and-r-and-b)
+| Bruno Mars | CTO = Chief Tech Officer | [🎵Link](https://youtu.be/OPf0YbXqDm0?feature=shared)
+| Lady Gaga | CEO = Chief Executive Officer | [🎵Link](https://youtu.be/fmC6b6_ovZY?feature=shared)
+
 ## 1930's : 1960's : 1990's : 2020's
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | YT Music
 | -------------    | ------------- | -------------     | -------------       | -------------

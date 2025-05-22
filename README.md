@@ -11,19 +11,12 @@
 | David Bowie   | Jay-Z         | Gemini Tha Artist   | [YT Music page](https://music.youtube.com/channel/UCmNRZMc-MAD7BPEmLC6Y93w?feature=shared)
 | Jimi Hendrix  | Dave Navarro  | Amir Kalil          | N/A
 
-## CRM2 Top Links:
-🎬 [Snoop Dogg - Iz It A Crime? (OFFICIAL MOVIE)](https://youtu.be/YJTqBL7MSX0?feature=shared)<br/>
-🗽 [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)<br/>
-🎬 Civil Rights Movement was happening during the 1960's ↙️:<br/>
-[Civil Rights Movement at @YouTube/BlackHistoryinTwoMinutes](https://youtu.be/9ppTiyxFSs0?si=9JVIwt_BKtFEZoEJ)
+### Top Links:
+| v^_^ | $_$
+| ------------- | -------------
+| 🎬 | [Snoop Dogg - Iz It A Crime? (OFFICIAL MOVIE)](https://youtu.be/YJTqBL7MSX0?feature=shared)
+| 🗽 | [Mehcad Brooks at Bluesky](https://bsky.app/profile/mehcad.bsky.social)
+| 🎬 | Civil Rights Movement was happening during the 1960's ↙️:<br/>[Civil Rights Movement at @YouTube/BlackHistoryinTwoMinutes](https://youtu.be/9ppTiyxFSs0?si=9JVIwt_BKtFEZoEJ)
 
-### CRM2 Tools:
-🌠 [Daily News](https://github.com/djkumislime/djkumislime/tree/main)
-🌠 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md)<br/>
-
-💝 [Github readme markdown doc](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
-💝 [https://emojipedia.org/](https://emojipedia.org/)
-💝 [YT Music](https://music.youtube.com/)<br/>
-
-🟥 [Federal healthcare subsidy at HealthCare.gov](https://www.healthcare.gov)
-🟥 [CA subsidies at Benefitscal.com](https://benefitscal.com)<br/>
+#### Tools:
+🌠 [Daily News](https://github.com/djkumislime/djkumislime/tree/main) | 🌠 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md) | 💝 [Markdown](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax) | 💝 [Emojipedia.org](https://emojipedia.org/) | 💝 [YT Music](https://music.youtube.com/) | 🟥 [HealthCare.gov](https://www.healthcare.gov) | 🟥 [Benefitscal.com](https://benefitscal.com)

@@ -1,6 +1,6 @@
 # CRM2 = Civil Rights Movement 2 by DJ📡Kumislime
 
-[^_^ July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/)
+[^_^ July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/) | [US Environmental Protection Agency](https://www.epa.gov/)
 
 💝 [YT Music](https://music.youtube.com/) | 💝 [Emojipedia.org](https://emojipedia.org/) | 💝 [Markdown](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax) | ⚡ [くみ's artworks for sale at Etsy](https://etsy.com/shop/935ent)
 
@@ -28,7 +28,7 @@ Jump (83), Scarface (83), [くみ (85)](https://soundcloud.com/user-107284496), 
 | -------------    | ------------- | -------------     | -------------       | -------------
 | Herbert Hoover | Dwight Eisenhower | George H. W. Bush | [Donald Trump](https://github.com/djkumislime/2025/blob/main/README.md) | ? P.Diddy
 | Rights to Exist | Rights to Vote  | Rights to Privacy | Rights to Decent Healthcare | Rights to Transform
-| Duke Ellington   | Jimi Page     | Dr.Dre            | T.L.                | Elon Musk
+| Duke Ellington   | Jimi Page     | [Dr.Dre](https://youtu.be/eeumL7Fz-8M?feature=shared&t=41) | T.L.                | Elon Musk
 | Charlie Parker   | Sam Cooke     | [Snoopy](https://youtu.be/YJTqBL7MSX0?feature=shared) | Tyler, The Creator  | Bill Gates
 | Dizzy Gillespie  | David Bowie   | Jay-Z             | Gemini Tha Artist   | Dorsey
 | Charlie Chaplin  | Jimi Hendrix  | Dave Navarro      | Amir Kalil          | Jeff Bezos
@@ -37,4 +37,3 @@ Jump (83), Scarface (83), [くみ (85)](https://soundcloud.com/user-107284496), 
 [🍓 DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared)
 [🟥 HealthCare.gov](https://www.healthcare.gov)
 [🟥 Benefitscal.com](https://benefitscal.com)
-

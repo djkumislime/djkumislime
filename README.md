@@ -19,6 +19,7 @@
 
 ## CRM2 Tools:
 🌠 [2025 Pivotal Events & Information](https://github.com/djkumislime/2025/blob/main/README.md)<br/>
+🌠 [Daily News](https://github.com/djkumislime/djkumislime/tree/main)<br/>
 
 💝 [Github readme markdown doc](https://docs.github.com/en/get-started/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
 💝 [https://emojipedia.org/](https://emojipedia.org/)
@@ -29,18 +30,3 @@
 
 🟥 [Federal healthcare subsidy at HealthCare.gov](https://www.healthcare.gov)
 🟥 [CA subsidies at Benefitscal.com](https://benefitscal.com)<br/>
-
-## CRM2 history...
-🗽 Wed, May 21, 2025: The Rosa Parks (*1) moment of Civil Rights Movement 2 happens ↙️:<br/>
-[DJ Kumislime decides to upload a translated copy of her Japanese birth certificate to Benefitscal.com.](https://benefitscal.com)<br/>
-🗽 Sat, May 17, 2025: Civil Rights Movement 2 begins ↙️:<br/>
-[A link to the video commemorating the beginning.](https://github.com/djkumislime/2025/blob/main/VID_20250521_074723882.mp4)<br/>
-
-*1: [Rosa Parks](https://en.wikipedia.org/wiki/Rosa_Parks)
-
-## Daily CRM2 News:
-- [Wed/5/21/2025 | Day #6 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250521-day006-civil-rights-movement2.txt)
-- [Tue/5/20/2025 | Day #5 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250520-day005-civil-rights-movement2.txt)
-- [Mon/5/19/2025 | Day #4 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250519-day004-civil-rights-movements2.docx)
-- [Sun/5/18/2025 | Day #3 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250518-day003-civil-rights-movements2.txt)
-- [Sat/5/17/2025 | Day #2 of Civil Rights Movement 2](https://github.com/djkumislime/djkumislime/blob/main/20250517-day002-civil-rights-movement2.docx)

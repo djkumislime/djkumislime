@@ -1,7 +1,8 @@
 # CRM2 = Civil Rights Movement 2 📡
 
 > [!IMPORTANT]
-[^_^ July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/) | [US Environmental Protection Agency](https://www.epa.gov/)
+> "Denial drip doesn't suit a nation that calls itself 'the greatest on Earth.' You can't flex that title, deny what it takes to actually be that and still claim moral authority over the world. The fit is off. We look raggedy." -Mehcad Brooks<br/><br/>
+> [^_^ July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/) | [US Environmental Protection Agency](https://www.epa.gov/)
 
 # 📈1930's Onward Every 30 Years
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | 2050's (Blockchain)

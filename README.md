@@ -16,7 +16,7 @@
 <ins>**1957-1971: Veterans**</ins><br/>
 Yo-cchan (Jan 57), [Madonna (58)](https://youtu.be/VlbaJA7aO9M?feature=shared), [Prince (58)](https://www.youtube.com/watch?v=HJtxSdTL488&list=OLAK5uy_lO0H7usmrKWdoc6f8SIFQhJgLYmw2562E), Kind of Blue (59), [Chuck D (60)](https://bringthenoiseapp.com/)<br/>
 [Dr.Dre (65)](https://www.drdre.com/), [Yoshiki (65)](https://www.yoshiki.net/), [Chris Rock (65)](https://chrisrock.com/), [Zahn McClarnon (66)](https://en.wikipedia.org/wiki/Zahn_McClarnon), [Janet (66)](https://www.youtube.com/@JanetJackson/videos), [Navarro (67)](https://en.wikipedia.org/wiki/Dave_Navarro)<br/>
-[Jay-Z (69)](https://www.rocnation.com/), Snoopy (Oct 71)
+[Jay-Z (69)](https://www.rocnation.com/), [Kazutoshi Sakurai (70)](https://en.wikipedia.org/wiki/Kazutoshi_Sakurai), Snoopy (Oct 71)
 
 <ins>**1972: Veterans & Special Team**</ins><br/>
 [ホリエモン (72)](https://www.google.com/search?q=horiemon&sca_esv=2af23fbe5c927cf8&rlz=1C1ONGR_enUS1159US1159&prmd=ivns&sxsrf=AHTn8zrFMDQ8GXFDsKZskMfjOY75-gygEg:1747953531446&source=lnms&fbs=ABzOT_CWdhQLP1FcmU5B0fn3xuWpA-dk4wpBWOGsoR7DG5zJBjLjqIC1CYKD9D-DQAQS3Z44LBK6yTXN_5587Z3ya9D76ZZ826DWN9d1Qgzn83HTxrHrKWtHY_wmBzzWWfvRn_zuv0G5fCMMqr2dkyXi8QErFO13wLGo3ULN6ipwwniNdnQjAejmjERjQms3181qlCcrn8OWQY2Cc64WiksQbkGwFVX9DA&sa=X&ved=2ahUKEwiso82qkriNAxWbFjQIHaCUAQEQ0pQJegQIBhAE&biw=1138&bih=659&dpr=1.23), [ピート (72)](https://www.youtube.com/@fauxfoemusic), The Godfather (72)

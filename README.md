@@ -31,7 +31,10 @@ Taxi Driver (76), Raging Bull (80), [Mehcad Brooks (80)](https://mehcad.com/), [
 [Nicky (?78?81)](https://soundcloud.com/pluutomusic/sets/pluuto-ep), モリス (?78?81), [Dr. Satterthwaite (?78?81)](https://gregonkeys.com/), やっちゃん (Jan 83), [Hikaru Utada (Jan 83)](https://www.utadahikaru.jp/)
 
 <ins>**1983,1984,1985: Soldiers**</ins><br/>
-Jump (83), Scarface (83), [くみ (85)](https://soundcloud.com/user-107284496), [Bruno Mars (85)](https://www.brunomars.com/)
+Jump (83), Scarface (83), Mario Bros. (83), Tetris (84), [くみ (85)](https://soundcloud.com/user-107284496), [Bruno Mars (85)](https://www.brunomars.com/)
+
+<ins>**1986 onward: Videogamers**</ins><br/>
+Dragon Quest (86), Wolfenstein 3D (May 92), Super Mario Kart (Aug 92), Dragon Quest V (Sep 92), Doom (93), Quake (96), Ghost Recon (01), Call of Duty (03)
 
 # Links
 💝 [YT Music](https://music.youtube.com/)

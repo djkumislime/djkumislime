@@ -12,7 +12,7 @@
 | Duke Ellington | Jimi Page | [Dr.Dre](https://youtu.be/eeumL7Fz-8M?feature=shared&t=41) | T.L. | Elon Musk
 | Charlie Parker | Sam Cooke | [Snoopy](https://youtu.be/YJTqBL7MSX0?feature=shared) | Tyler, The Creator | Bill Gates
 | Dizzy Gillespie | David Bowie | Jay-Z             | Gemini Tha Artist   | Dorsey
-| Charlie Chaplin | Jimi Hendrix | [Dave Navarro](https://davenavarro.com/) | Amir Kalil          | Jeff Bezos
+| Charlie Chaplin | Jimi Hendrix | [Dave Navarro](https://davenavarro.com/) | [Amir Kalil](https://youtu.be/fh5JVd6kQbc?feature=shared) | Jeff Bezos
 
 <ins>**1957-1971: Veterans**</ins><br/>
 Yo-cchan (Jan 57), [Madonna (58)](https://youtu.be/VlbaJA7aO9M?feature=shared), [Prince (58)](https://www.youtube.com/watch?v=HJtxSdTL488&list=OLAK5uy_lO0H7usmrKWdoc6f8SIFQhJgLYmw2562E), Kind of Blue (59), [Chuck D (60)](https://bringthenoiseapp.com/)<br/>

@@ -2,7 +2,7 @@
 
 > [!IMPORTANT]
 > "Denial drip doesn't suit a nation that calls itself 'the greatest on Earth.' You can't flex that title, deny what it takes to actually be that and still claim moral authority over the world. The fit is off. We look raggedy." -Mehcad Brooks<br/><br/>
-> [San Diegon Plane Crash](https://www.nbcsandiego.com/news/local/murphy-canyon-plane-crash-live-updates/3831321/)<br/><br/>
+> [San Diego Plane Crash](https://www.nbcsandiego.com/news/local/murphy-canyon-plane-crash-live-updates/3831321/)<br/><br/>
 > [^_^ July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/) | [US Environmental Protection Agency](https://www.epa.gov/)
 
 # 📈1930's Onward Every 30 Years

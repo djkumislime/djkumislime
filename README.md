@@ -16,7 +16,7 @@
 | Charlie Chaplin | Jimi Hendrix | [Dave Navarro](https://davenavarro.com/) | [Amir Kalil](https://youtu.be/fh5JVd6kQbc?feature=shared) | Jeff Bezos
 
 <ins>**1957-1971: Veterans**</ins><br/>
-Yo-cchan (Jan 57), [Madonna (58)](https://youtu.be/VlbaJA7aO9M?feature=shared), [Prince (58)](https://www.youtube.com/watch?v=HJtxSdTL488&list=OLAK5uy_lO0H7usmrKWdoc6f8SIFQhJgLYmw2562E), Kind of Blue (59), [Chuck D (60)](https://bringthenoiseapp.com/)<br/>
+Yo-cchan (Jan 57), Pfeiffer (58), [Madonna (58)](https://youtu.be/VlbaJA7aO9M?feature=shared), [Prince (58)](https://www.youtube.com/watch?v=HJtxSdTL488&list=OLAK5uy_lO0H7usmrKWdoc6f8SIFQhJgLYmw2562E), Kind of Blue (59), [Chuck D (60)](https://bringthenoiseapp.com/)<br/>
 [Dr.Dre (65)](https://www.drdre.com/), [Yoshiki (65)](https://www.yoshiki.net/), [Chris Rock (65)](https://chrisrock.com/), [Zahn McClarnon (66)](https://en.wikipedia.org/wiki/Zahn_McClarnon), [Janet (66)](https://www.youtube.com/@JanetJackson/videos), [Navarro (67)](https://en.wikipedia.org/wiki/Dave_Navarro)<br/>
 [Jay-Z (69)](https://www.rocnation.com/), [Kazutoshi Sakurai (70)](https://en.wikipedia.org/wiki/Kazutoshi_Sakurai), Snoopy (Oct 71)
 

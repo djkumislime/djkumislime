@@ -1,0 +1,16 @@
+Friday, May 23, 2025: Day 8: Civil Rights Movement 2
+============================================================
+Given:
+For a US citizen to get employed, you need one of:
+B (= US Birth Certificate)
+C (= Citizenship Paper)
+--------------------------------------------------------------------------------------------------------------
+Assume you are a US citizen trying to get employed.
+1. If you were born in the US and have your B, DONE.
+2. If you were born in the US and don't have your B, YOU CAN NOT GET EMPLOYED.
+3. If you were born outside the US and have your C, DONE.
+4. If you were born outside the US and don't have your C, YOU CAN NOT GET EMPLOYED.
+--------------------------------------------------------------------------------------------------------------
+Therefore, you can not get employed if one of:
+- you were born in the US and don't have your US Birth Certificate
+- you were born outside the US and don't have your Citizenship Paper

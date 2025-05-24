@@ -1,5 +1,19 @@
 Friday, May 23, 2025: Day 8: Civil Rights Movement 2
 ============================================================
+Rosa Parks (Activist, 1913, 0-yr-old)
+Maya Angelou (Writer, 1928, 0-yr-old)
+Buffy Sainte-Marie (Musician, 1941, 0-yr-old)
+
+Voting Rights Act (1965)
+Rosa Parks (Activist, 1965, 42-yr-old)
+Maya Angelou (Writer, 1965, 37-yr-old)
+Buffy Sainte-Marie (Musician, 1965, 24-yr-old)
+
+Rosa Parks (Activist, 2005, 92-yrs-old)
+Maya Angelou (Writer, 2014, 86-yr-old)
+Buffy Sainte-Marie (Musician, 2025, 84-yr-old)
+
+============================================================
 Given:
 For a US citizen to get employed, you need one of:
 B (= US Birth Certificate)

@@ -2,8 +2,8 @@
 
 > [!IMPORTANT]
 > "Denial drip doesn't suit a nation that calls itself 'the greatest on Earth.' You can't flex that title, deny what it takes to actually be that and still claim moral authority over the world. The fit is off. We look raggedy." -Mehcad Brooks<br/><br/>
-> [San Diego Plane Crash](https://www.nbcsandiego.com/news/local/murphy-canyon-plane-crash-live-updates/3831321/)<br/><br/>
-> [^_^ July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/) | [US Environmental Protection Agency](https://www.epa.gov/)
+
+💘 [CA v.s. Fed](https://github.com/djkumislime/djkumislime/blob/main/caVsFedImage.jpeg?raw=true)
 
 # 📈1930's Onward Every 30 Years
 | 1930's (Telephone) | 1960's (CRM)  | 1990's (Internet) | 2020's (CRM2)     | 2050's (Blockchain)
@@ -46,3 +46,7 @@ Dragon Quest (86), Wolfenstein 3D (May 92), Super Mario Kart (Aug 92), Dragon Qu
 🍓 [DJ Kumislime's Playlist @youtubemusic](https://music.youtube.com/playlist?list=PLT7degVqvonnf63V8EMyKSAGVkKSquWLm&feature=shared)
 🟥 [HealthCare.gov](https://www.healthcare.gov)
 🟥 [Benefitscal.com](https://benefitscal.com)
+<br/>
+[July 8 Uranus Enters Gemini](https://astro-charts.com/chart-of-moment/)
+[US Environmental Protection Agency](https://www.epa.gov/)
+
